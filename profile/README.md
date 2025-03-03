@@ -8,7 +8,9 @@
 <body>
 
 <h1>Infant GERD Wedge Pillow: The Sleep Solution I Wish I'd Found Sooner</h1>
-<img src="https://www.refluxguard.com/wp-content/uploads/elementor/thumbs/the-best-Under-Mattress-Bed-Wedge-for-acid-reflux-gerd-treatment-for-sleeping-at-night-PNG-pqp1lc4n9lrnzi6h06dj04y73f0m14h2tpchlw2hq4.png" alt="Reflux Guard Infant GERD Wedge Pillow" width="100%" height="auto">
+<a href="https://www.refluxguard.com/?coupon=bedwedge2">
+    <img src="https://www.refluxguard.com/wp-content/uploads/elementor/thumbs/the-best-Under-Mattress-Bed-Wedge-for-acid-reflux-gerd-treatment-for-sleeping-at-night-PNG-pqp1lc4n9lrnzi6h06dj04y73f0m14h2tpchlw2hq4.png" alt="Reflux Guard Infant GERD Wedge Pillow" width="100%" height="auto">
+</a>
 
 Those long nights with my crying baby nearly broke me. Every time I laid my little one down, the spit-up and crying would start all over again. If you're dealing with a fussy, uncomfortable baby who can't seem to sleep because of acid reflux, I completely understand your struggle.
 
@@ -42,7 +44,9 @@ I tried propping up the crib mattress with towels, but it wasn't stable. I tried
 
 <h2>Infant GERD Wedge Pillows: The Safe Sleep Solution I Discovered</h2>
 
-<img src="https://www.refluxguard.com/wp-content/uploads/2024/12/under-mattress-bed-wedge-cloud-1024x654-1.png" alt="Reflux Guard Wedge Pillow Under Mattress" width="100%" height="auto">
+<a href="https://www.refluxguard.com/?coupon=bedwedge2">
+    <img src="https://www.refluxguard.com/wp-content/uploads/2024/12/under-mattress-bed-wedge-cloud-1024x654-1.png" alt="Reflux Guard Wedge Pillow Under Mattress" width="100%" height="auto">
+</a>
 
 An infant GERD wedge pillow is a firm, sloped cushion that goes under your baby's mattress (not directly under the baby). It creates a gentle slope that helps keep stomach acid down while your baby sleeps.
 
@@ -136,7 +140,9 @@ The Reflux Guard isn't just a product to me - it's the reason my baby and I fina
 
 Remember to always check with your pediatrician first, and make sure you're using the wedge safely - under the mattress, following all safe sleep guidelines.
 
-<img src="https://www.refluxguard.com/wp-content/uploads/2024/12/under-mattress-bed-wedge-cloud-1024x654-1.png" alt="Reflux Guard Wedge for Infant GERD" width="80%" height="auto" style="display: block; margin: 20px auto;">
+<a href="https://www.refluxguard.com/?coupon=bedwedge2">
+    <img src="https://www.refluxguard.com/wp-content/uploads/2024/12/under-mattress-bed-wedge-cloud-1024x654-1.png" alt="Reflux Guard Wedge for Infant GERD" width="80%" height="auto" style="display: block; margin: 20px auto;">
+</a>
 
 <h3>Give Your Baby the Gift of Comfortable Sleep Tonight</h3>
 <p>✅ Safe Materials | ✅ Perfect Incline | ✅ Easy to Clean | ✅ Fits Standard Cribs</p>
