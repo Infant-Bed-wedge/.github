@@ -3,7 +3,6 @@
 <head>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>Infant GERD Wedge Pillow: Help Your Baby Sleep Better Tonight | Reflux Guard</title>
     <meta name="description" content="Looking for relief from your baby's GERD symptoms? Our infant GERD wedge pillow helps reduce spit-up and improves sleep. Learn how it works!">
 </head>
 <body>
